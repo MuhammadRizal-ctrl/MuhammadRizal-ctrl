@@ -23,8 +23,10 @@
 ---
 
 ### 📫 How to reach me
-- LinkedIn: [linkedin.com/in/muhammad-rizal-fatkhurrohman](https://linkedin.com/in/muhammad-rizal-fatkhurrohman)
-- Email: rizalfatkhurikh@gmail.com
+
+LinkedIn: https://www.linkedin.com/in/muhammad-rizal-fatkhurrohman  
+Email: rizalfatkhurikh@gmail.com  
+Medium: https://medium.com/@rizalfatkhurikh
 
 ---
 
